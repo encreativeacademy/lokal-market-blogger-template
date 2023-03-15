@@ -1,0 +1,1 @@
+# lokal-market-blogger-template
